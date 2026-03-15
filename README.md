@@ -1,2 +1,4 @@
-# Shop-techologies
-123
+# smthidk
+
+## hi bro
+## PLEASE OPEN A SITE!!
